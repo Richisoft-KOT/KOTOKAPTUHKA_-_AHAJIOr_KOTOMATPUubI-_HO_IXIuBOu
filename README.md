@@ -16,4 +16,5 @@ KICQ:748-807-982
 <img width="936" height="704" alt="photo_2026-07-22_13-17-14" src="https://github.com/user-attachments/assets/8d99f89e-5710-4b6c-9848-88289387708a" />
 <img width="600" height="723" alt="kotomatritsa_aE" src="https://github.com/user-attachments/assets/6e1f1c67-421a-435b-9066-8a3faae9956a" />
 
+<img width="640" height="640" alt="photo_2024-03-27_19-52-51 (2)" src="https://github.com/user-attachments/assets/491f0d6e-458b-40eb-9705-21616d9b5bb5" />
 СДЕЛАННО МЕМОМ РИЧАРДСОМ/РИЧИСОФТОМ 2026 год
